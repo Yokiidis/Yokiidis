@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Yokiidis
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning Japanese
+- 💞️ I’m looking to collaborate on friends
+- 📫 How to reach me by my address just ask
+- 📲 chat me mf:> 
